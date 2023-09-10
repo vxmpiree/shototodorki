@@ -11,7 +11,6 @@
 - only int if ur like 14 - like 18
 - im also like... nerodivergent. i should add that
 - if you correct me on my spelling i will **SKIN** YOU.
-- read my spacehey :33
 <!---
 shototodorki/shototodorki is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
