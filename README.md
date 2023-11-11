@@ -1,1 +1,1 @@
-dni if alphabet mafia
+dni lgbt
